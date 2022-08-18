@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Erik 👋
 
 📖 I'm a BSc Computer Science Student at the University of Szeged. 
 
